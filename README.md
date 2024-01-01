@@ -8,7 +8,7 @@ Hey there, fellow coders! 👋 I'm excited to join the "6 Companies 30 Days Chal
 
 - **Duration**: 30 Days
 - **Focus**: Referrals, Coding Skills, Data Structures, Algorithms
-- **Hashtags**: #6companies30dayschallenge #NewYearNewChallenge #ReviseWithArsh
+- **Hashtags**: #6companies30dayschallenge #NewYearNewChallenge #ReviseWithArsh #6Companies30Days #ReviseWithArsh
 
 
 Let's make 2024 a year of growth and achievements! 🚀
